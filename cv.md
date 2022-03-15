@@ -1,1 +1,1 @@
-^_^
+CV of KozichKonstantin (in future)
